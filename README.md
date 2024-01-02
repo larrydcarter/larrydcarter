@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Larry Devin Carter
+larrydcarter@yahoo.com
+Student at Tech Elevator
+
+I'm currently learning JaveSript. I have a background in craft beer manufacturing and well as pest control. But, I'm looking to 
+change carriers. Any industry tips are welcome.
